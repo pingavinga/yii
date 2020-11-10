@@ -1,6 +1,6 @@
 a
-poxiщеще
-cквокер
+ZZZ
+z
 d
 e
 f
